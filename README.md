@@ -1,1 +1,1 @@
-# hiyume.games
+google.com, pub-7760088352443837, DIRECT, f08c47fec0942fa0
